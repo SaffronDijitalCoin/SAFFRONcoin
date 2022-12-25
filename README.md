@@ -22,12 +22,26 @@ Website : https://QAENATsaffron.com/
 social madia :
 
 https://t.me/SAFRONCoin
+
 https://t.me/SAFFRONcommunity
+
 https://t.me/Saffronchinese
+
+https://github.com/saffroncoin
+
+https://github.com/SaffronDijitalCoin/SAFFRONcoin
+
+https://discord.gg/4NWREPpa
+
+https://www.linkedin.com/in/hashem-abdolahzadeh-586944259
+
+https://medium.com/@saffroncoin
 
 https://twitter.com/SAFRONcoin
 
-https://www.instagram.com/SAFFRONcoin
+https://www.reddit.com/u/SAFFRONcrypto?utm_medium=android_app&utm_source=share
+
+https://youtube.com/channel/UC23IcmVmtUjgereQGIug6KA
 
 Email : Info@QAENATsaffron.com
 
